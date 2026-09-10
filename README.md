@@ -1,4 +1,0 @@
-# Purplebio
-Bullshit!!!
-
-Booyahhh
